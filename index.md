@@ -1,4 +1,4 @@
-The Law of Assumption: How Beliefs Shape Reality
+**The Law of Assumption: How Beliefs Shape Reality**
 
 (With neuroscientific and psychological evidence)
 
